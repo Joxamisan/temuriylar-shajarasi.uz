@@ -1,0 +1,1 @@
+# temuriylar-shajarasi.uz
